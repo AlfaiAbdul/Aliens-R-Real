@@ -1,7 +1,7 @@
 # Aliens-R-Real
 
 <p align="center">
-  <img width="460" height="300" src="https://www.dvdtalk.com/reviews/32665/independence-day/">
+  <img width="460" height="300" src="https://newatlas.com/alien-communication-voyager-seti/50381/">
 </p>
 
 WAKE UP SHEEPLE! The extra-terrestrial menace has come to Earth and we here at **www.ALIENS-R-REAL.com** have collected all of the eye-witness reports we could to prove it! All we need to do now is put this information online for the world to see and then the matter will finally be put to rest.
